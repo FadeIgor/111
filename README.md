@@ -1,4 +1,4 @@
 # 111
 eloelo
 całodobowy sklep monopolowy
-noe elelel
+zara sprawdzian z niemca pamiętaj
